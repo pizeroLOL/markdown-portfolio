@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+# FFFFFFFFFFFF
+1. _what** fack teacher**_ __ffffffffffffff__ _**email**_
